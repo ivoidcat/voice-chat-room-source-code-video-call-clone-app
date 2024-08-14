@@ -32,7 +32,7 @@ Contact me:
 WhatsApp: +44 7999 529473
 
 Wechat
-<img src="[https://img-blog.csdnimg.cn/2020102116384135.png](https://github.com/user-attachments/assets/ac9de905-2231-466f-bf40-23b9eea1f287)" width="100px">
+<img src="https://img-blog.csdnimg.cn/2020102116384135.png" width="100px">
 
 
 
