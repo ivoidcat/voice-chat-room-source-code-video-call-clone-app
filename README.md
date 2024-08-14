@@ -37,9 +37,7 @@ WhatsApp: +44 7999 529473
 ****
   
 
-Wechat:13583884080
+微信:13583884080
 ****
-  
-<img src="https://github.com/user-attachments/assets/7cbf2b43-3789-4762-bdb0-9a1f0e38aff9" width="300px">
 
 
